@@ -1,1 +1,0 @@
-# LojikDevreTasar-m-Projesi
